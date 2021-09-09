@@ -3,11 +3,9 @@
 
 ## 系列1
 
-作品：His Royal Secret
-
-作者： Lilah Pace
-
-评分：5/5
+作品：His Royal Secret 
+作者： Lilah Pace 
+评分：5/5 
 
 英国王子 X 德国记者 (原型：一美 法鲨)
 
@@ -39,7 +37,9 @@ Secret梗概
 第一部结束，第二部中，詹姆斯和本杰明将一起迎接皇室和媒体的挑战。
 
 
-
+<br/>
+<br/>
+<br/>
 
 ## 系列2
 
