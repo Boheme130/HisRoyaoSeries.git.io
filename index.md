@@ -1,5 +1,7 @@
 ## His Royal 系列
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](https://m.media-amazon.com/images/I/B1hhJctclQS._SY300_.png)
 <br>
 <br>
 
