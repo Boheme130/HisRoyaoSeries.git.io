@@ -1,4 +1,7 @@
 ## His Royal 系列
+[回到主页](https://boheme130.github.io/Fiction.git.io/)
+<br>
+<br>
 
 
 ## 系列1
