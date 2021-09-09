@@ -3,9 +3,9 @@
 
 ## 系列1
 
-作品：His Royal Secret 
-作者： Lilah Pace 
-评分：5/5 
+作品：His Royal Secret <br/>
+作者： Lilah Pace <br/>
+评分：5/5
 
 英国王子 X 德国记者 (原型：一美 法鲨)
 
